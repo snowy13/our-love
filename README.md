@@ -1,4 +1,4 @@
-# our-love
+# Le pardon
 
 Chère Geneviève, l’amour de ma vie, la femme que j’ai choisi, mère de mes enfants, ma compagne depuis un temps...je te demand pardon..
 
@@ -31,9 +31,9 @@ Je promets..
 
 
 D’aimer autant moi que toi
-De lâcher-prise sur le passé et me pardonner et de te pardonner 
+De lâcher-prise sur le passé et me pardonner et de te pardonner
 De ne garder aucune rancune contre moi et toi
-Donner la chance à lautre quand il le faut  
+Donner la chance à lautre quand il le faut
 Ouvrir mon cœur à un changement, la prochaine étape, plein d’amour et de succès pour nous et notre famille
-M’accepter comme je le suis et comme tu l’es 
+M’accepter comme je le suis et comme tu l’es
 Accepter que nous ne  sommes pas exempts de l’erreur
